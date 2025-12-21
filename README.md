@@ -1,9 +1,9 @@
-![gif description](https://files.catbox.moe/4z2zp8.gif) 
+![gif description](https://files.catbox.moe/pem12e.png) 
 
-░ ⌗ 𝘙𝘌𝘈𝘋 MY RENTRY BEFORE YOU INTERACT. !! 
+░ ⌗ 𝘙𝘌𝘈𝘋 MY RENTRY BEFORE YOU INTERACT. !!
 
-▒  Panromantic ᥬ unlabeled gender  + aroace !!!!!!
+▒  Panromantic + unlabeled gender  + aroace !!!!!!
 
 ⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N + OTHERKIN 
 
-༄ C+H & Int is appreciated please!!! feel free to bmf aswell,read my rentry first tho...  I also accept all friend requests too , so dont be afraid!!! 
+༄ C+H & Int is appreciated please!!! I also accept all friend requests too , so dont be afraid!!! 
